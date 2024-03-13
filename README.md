@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **adityajadhav4055@gmail.com**
 
-- 📄 Know about my experiences [Aditya Jadhav Resume(https://drive.google.com/file/d/14x7d-AcNifKcVuhVGF7QDe9oGjrGc8aJ/view?usp=drive_link)](Aditya Jadhav Resume(https://drive.google.com/file/d/14x7d-AcNifKcVuhVGF7QDe9oGjrGc8aJ/view?usp=drive_link))
+- 📄 Know about my experiences [Aditya Jadhav Resume(https://drive.google.com/file/d/14x7d-AcNifKcVuhVGF7QDe9oGjrGc8aJ/view?usp=drive_link)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
